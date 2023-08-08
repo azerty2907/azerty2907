@@ -2,7 +2,7 @@
 - 👀 I’m interested in all
 - 🎏 I like manga
 - 💻 I like technologies and video games
-- 🌱 I’m currently learning at scoll
+- 🌱 I’m currently learning at scholl
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me: on discord azerty#1671
 
