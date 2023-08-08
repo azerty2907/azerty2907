@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @azerty2907
-- 👀 I’m interested at all
+- 👀 I’m interested on all
 - 🎏 I like manga
 - 💻 I like technologies and video games
 - 🌱 I’m currently learning at scholl
